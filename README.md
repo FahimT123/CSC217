@@ -5,6 +5,7 @@
 * **Full YouTube Video Series:** [Watch the Playlist](https://youtube.com/playlist?list=PLJcMhtMrAmjo&si=8fPymT-28LWmaThp)
 
 ---
+<img width="1788" height="789" alt="image" src="https://github.com/user-attachments/assets/0160b607-ef63-4ab8-96d9-600aa42c54bd" />
 
 ---
 
